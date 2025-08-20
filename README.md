@@ -6,7 +6,7 @@
         ⠀　　𐙚　Glisten main in dandys world n c4 kauzha main in genshin　　 ₊  ◞　
                • ┈ • ┈ • ୨୧ • ┈ • ┈ • 
 
-                   𐙚　17　 ₊  ◞
+                   𐙚　18　 ₊  ◞
               • ┈ • ┈ • ୨୧ • ┈ • ┈ • 
 
                  ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
