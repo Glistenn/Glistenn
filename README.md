@@ -2,8 +2,8 @@
 
                   • ┈ • ┈ • ୨୧ • ┈ • ┈ • 
 
-            . ✧ ° . • Lizzy/Zii/Cass
-        ⠀　　𐙚　Glisten main in dandys world n c4 kauzha main in genshin　　 ₊  ◞　
+            . ✧ ° . • Trody/Kaleb/Kasper
+        ⠀　　𐙚　Glisten main in dandys world 　　 ₊  ◞　
                • ┈ • ┈ • ୨୧ • ┈ • ┈ • 
 
                    𐙚　18　 ₊  ◞
