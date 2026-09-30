@@ -32,4 +32,4 @@ $\color{#FF69B4}{WIP}$
 
 <details closed>
   <summary> ${{\color{#FF69B4} ⋆}}$ ${{\color{#FF69B4} Ponytown titles/rewards!!}}$</summary>
-<a href=https://github.com/title-town>@Glistens title town</a> <a href=https://github.com/pt-players>@Cool players reward!</a> , <a href=https://github.com/Ponytowns-rewards>@Itrappeds title town and prettiest ponies!</a>
+<a href=https://github.com/title-town>@Glisten the mirror title!</a> <a href=https://github.com/pt-players>@Cool players reward!</a> , <a href=https://github.com/Ponytowns-rewards>@Itrappeds mm12 PT! and prettiest ponies!</a>
