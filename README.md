@@ -1,4 +1,7 @@
-$\color{#FF69B4}{WIP!!}$ 
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF69B4&width=435&lines=Hii+welcome+to+my+profile!!;For+more+info+click+below!+" alt="Typing SVG" /></a>
+</p>
+
 
 <img src="https://files.catbox.moe/ltqoio.png" align="left" width="400px">
 
