@@ -17,7 +17,8 @@ $\color{#FF69B4}{Hispanic~.Asian}$
 
 <details closed>
   <summary> ${{\color{#FF69B4} ⋆}}$ ${{\color{#FF69B4} Awzes~Basement~GC!!}}$</summary>
- <a href=https://github.com/Chemicalshot>@Awze</a>, <a href=https://github.com/Iiquidsmooth>@Ember</a> ,<a href=https://github.com/flashyl>@Flashyl</a> , <a href=https://github.com/VlXXEN>@Vixxen</a> , <a href=https://github.com/deadbridewalking>@Merisz</a> , <a href=https://github.com/self-preservation8>@Noah</a> , <a href=https://github.com/pyrionlyx>@Kai</a> , <a href=https://github.com/raininsanity>@Ray/Lizzy</a> , <a href=https://github.com/architectfishh>@Fish</a> , <a href=https://github.com/Princezamadorer>@Mexion</a> , <a href=https://github.com/Jesters-Circus>@Jester/Ry</a> , <a href=https://github.com/peestainedcarpet>@bluudud/scribbles</a>
+ <a href=https://github.com/Chemicalshot>@Awze</a>, <a href=https://github.com/Iiquidsmooth>@Ember</a> ,<a href=https://github.com/flashyl>@Flashyl</a> , <a href=https://github.com/VlXXEN>@Vixxen</a> , <a href=https://github.com/deadbridewalking>@Merisz</a> , <a href=https://github.com/self-preservation8>@Noah</a> , <a href=https://github.com/pyrionlyx>@Kai</a> , <a href=https://github.com/raininsanity>@Ray/Lizzy</a> , <a href=https://github.com/architectfishh>@Fish</a> , <a href=https://github.com/Princezamadorer>@Mexion</a> , <a href=https://github.com/Jesters-Circus>@Jester/Ry</a> , <a href=https://github.com/peestainedcarpet>@bluudud/scribbles</a> , <a href=https://github.com/ACE0FHEART5>@Divinity</a>
+
 
 </details> 
 
