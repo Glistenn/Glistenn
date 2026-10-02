@@ -31,7 +31,23 @@ $\color{#FF69B4}{Let~me~know~if~im~missing~you!}$
 
 <details closed>
   <summary> ${{\color{#FF69B4} ⋆}}$ ${{\color{#FF69B4} BYI!!}}$</summary>
-$\color{#FF69B4}{WIP}$ 
+$\color{#FF69B4}{Hi~im~a~realist~person~bare~with~me}$ 
+$\color{#FF69B4}{I~tend~to~say~offensive~jokes}$ 
+$\color{#FF69B4}{If~you~dont~like~me~for~it}$
+  $\color{#FF69B4}{please~tell~me~ill~stop~or~dont~int}$
+$\color{#FF69B4}{I'm~insensitive~that~isnt~my~problem}$ 
+$\color{#FF69B4}{your~problem~isnt~mine~unless~between~us}$ 
+$\color{#FF69B4}{dont~drag~your~drama~to~me~i~will~ignore}$ 
+$\color{#FF69B4}{Im~nice~to~anyone~but~dont~vent~to~me}$ 
+$\color{#FF69B4}{I~freely~block~so~no~dni}$
+$\color{#FF69B4}{if~i~blocked~you~sign~my~ata~for~an~issue}$ 
+$\color{#FF69B4}{I~dont~care~what~you~do~just~have~common~sense}$ 
+
+
+
+
+
+
 </details>
 
 <details closed>
