@@ -42,6 +42,7 @@ $\color{#FF69B4}{Im~nice~to~anyone~but~dont~vent~to~me}$
 $\color{#FF69B4}{I~freely~block~so~no~dni}$
 $\color{#FF69B4}{if~i~blocked~you~sign~my~ata~for~an~issue}$ 
 $\color{#FF69B4}{I~dont~care~what~you~do~just~have~common~sense}$ 
+$\color{#FF69B4}{im~social~person~who~enjoys~talking~with~long~convos}$ 
 
 
 
